@@ -7,3 +7,7 @@
 in barely working launcher
 
 <img width="491" height="113" alt="507640571-bca6ef69-fd75-4f8c-b2db-26fc6484bbc3" src="https://github.com/user-attachments/assets/acf0157b-c3bd-46e0-9ee4-c5f58ba4c793" />
+
+
+# skiddding
+<img width="928" height="766" alt="507656112-e1b1db36-dbfc-4acd-8bef-12da503b7a26" src="https://github.com/user-attachments/assets/854fa8b6-dd2b-4f25-b047-65d987faf4ac" />
