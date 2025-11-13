@@ -18,6 +18,4 @@ he is chraging way much for launcher the barely working launcher 60 dollar for l
 <img width="481" height="207" alt="507654253-125d2aff-08a2-4a9c-a3e2-6d055e944d7e" src="https://github.com/user-attachments/assets/eb84cbc9-fb46-4c4a-83b8-a1afae49ae85" />
 
 
-<img width="481" height="207" alt="507654253-125d2aff-08a2-4a9c-a3e2-6d055e944d7e" src="https://github.com/user-attachments/assets/bbea8c14-7050-4c64-9c5a-7ae123eb1b9b" />
-
 also all the pictures i got it from kovryn
